@@ -1,4 +1,5 @@
-### Hi there 👋
+Technical Program Manager | Product Manager | Software Engineering | AI & Automation Enthusiast
+📍 Seattle, WA | 📧 abdikarim.mohamed.cs@gmail.com
 
 <!--
 **karimcodes/karimcodes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
