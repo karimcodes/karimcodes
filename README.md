@@ -1,4 +1,4 @@
-Technical Program Manager | Product Manager | Software Engineering | AI & Automation Enthusiast
+Software Engineering 
 📍 Seattle, WA | 📧 abdikarim.mohamed.cs@gmail.com
 
 <!--
